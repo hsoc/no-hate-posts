@@ -1,5 +1,5 @@
 #   Maybe We Should Talk
-***
+
 Hey you.
 
 A friend or follower of yours must really like you to bring this post to your attention. You see, you probably posted a silly link that promotes ignorance, hate, racism, or discrimination.
